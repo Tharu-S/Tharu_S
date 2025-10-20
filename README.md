@@ -18,7 +18,7 @@
 
 <br>
 
-[![@TharushiSubhani](https://img.icons8.com/fluency/48/000000/facebook.png "@TharushiSubhani")](https://www.facebook.com/share/19jbo85yuu/) [![@anushkawijegoonawardana97](https://img.icons8.com/fluency/48/000000/linkedin.png "@anushkawijegoonawardana97")](https://www.linkedin.com/in/anushkawijegoonawardana97/) [![@anushka_wije](https://img.icons8.com/fluency/48/000000/twitter-squared.png "@anushka_wije")](https://twitter.com/anushka_wije)  [![@anushkaduwolka123@gmail.com](https://img.icons8.com/fluency/48/000000/apple-mail.png "@anushkaduwolka123@gmail.com")](anushkaduwolka123@gmail.com)
+[![@TharushiSubhani](https://img.icons8.com/fluency/48/000000/facebook.png "@TharushiSubhani")](https://www.facebook.com/share/19jbo85yuu/) [![@TharushiSubhani](https://img.icons8.com/fluency/48/000000/linkedin.png "@TharushiSubhani")](https://www.linkedin.com/in/tharushi-subani-201319341/) [![@anushka_wije](https://img.icons8.com/fluency/48/000000/twitter-squared.png "@anushka_wije")](https://twitter.com/anushka_wije)  [![@tharushisubani123@gmail.com](https://img.icons8.com/fluency/48/000000/apple-mail.png "@tharushisubani123@gmail.com")](tharushisubani123@gmail.com)
 
 <br>
 
