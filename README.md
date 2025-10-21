@@ -7,8 +7,7 @@
 
 ## About Me :
 
-- 👩‍💼I'm an undergraduate at Rajarata University of Sri Lanka
-- 📬 Contact me: tharushisubani123@gmail.com
+- 👩‍💼I'm an undergraduate at **Rajarata University of Sri Lanka**
 - 🏡'Lives in **Ambalangoda Sri Lanka**
 - ⚡ **Fun Facts** : 🏸 🚵‍♀️ 🎨 🎧
 
